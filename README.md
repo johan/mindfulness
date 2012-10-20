@@ -88,3 +88,10 @@ David Richo
   here and now,
   always and everywhere,
   no one excluded.
+
+* As I say yes
+  to the reality of who I am,
+  with pride in my gifts
+  and unabashed awareness of my limits,
+  I notice that I can love myself
+  and that I become more lovable too.
