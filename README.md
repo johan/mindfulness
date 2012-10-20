@@ -178,3 +178,13 @@ David Richo
   blaming,
   out-of-control,
   or passive ways.
+
+* I do not let others abuse me
+  but I want to interpret their harshness
+  as coming from their own pain
+  and as a sadly confused way of letting me know
+  they need connection
+  but don't know how to ask for it
+  in healthy ways.
+  I recognize this with concern
+  not with censure or scorn.
