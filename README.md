@@ -9,3 +9,9 @@ David Richo
   honor commitments,
   and follor through
   on the tasks I agree to.
+
+* I am making every effort
+  to abide by standards
+  of rigorous honesty and respect
+  in all my dealings
+  no matter how others act toward me.
