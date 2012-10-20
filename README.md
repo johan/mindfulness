@@ -72,3 +72,19 @@ David Richo
   – and more interesting –
   than upholding the ever-shaky status
   of my ego.
+
+* I now measure my success
+  by how much steadfast love I have,
+  not by how much I have in the bank,
+  how much I achieve in business,
+  how much status I have attained,
+  or how much power I have over others.
+  The central
+  – and most exhilarating –
+  focus of my life
+  is to show all my love
+  in the style that is uniquely mine,
+  in every way I can,
+  here and now,
+  always and everywhere,
+  no one excluded.
