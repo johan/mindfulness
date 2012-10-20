@@ -95,3 +95,8 @@ David Richo
   and unabashed awareness of my limits,
   I notice that I can love myself
   and that I become more lovable too.
+
+* I never give up on believing
+  that everyone has an innate goodness
+  and that being open
+  can contribute to bringing it out.
