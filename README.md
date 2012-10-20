@@ -45,3 +45,15 @@ David Richo
   how I may still not be
   as loving, inclusive, and open
   as I can be.
+
+* I welcome feedback
+  that shows me where I am less caring,
+  where less tolerant,
+  where less open about my real feelings
+  than I can be.
+  When I am shown up as a pretender
+  or called on being mean or inauthentic,
+  I am not defensive
+  but take it as information
+  about what I have to work on.
+  I appreciate positive feedback also.
