@@ -221,5 +221,15 @@ David Richo
   Then I can reach out and include everyone
   in my circle of love, compassion and respect.
 
-
-
+* I look at other people and their choices
+  with intelligent discernment
+  but without censure.
+  I still notice
+  the shortcomings of others and myself,
+  but now I am beginning to see them
+  as facts to deal with
+  rather than flaws to be criticized or be ashamed of.
+  Accepting others as they are
+  has become more important
+  than whether they are
+  what I want them to be.
