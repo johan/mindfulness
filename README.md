@@ -34,3 +34,14 @@ David Richo
   his or her lack of boundaries.
   Instead, I want to express appreciation
   and work out an equitable way of interacting.
+
+* I keep examining my conscience with true candor.
+  I take searching inventories
+  not only about how I may have harmed others,
+  but also about how I may not have activated my potentials
+  or shared my gifts,
+  how I may still be holding on to prejudices
+  or the will to retaliate,
+  how I may still not be
+  as loving, inclusive, and open
+  as I can be.
