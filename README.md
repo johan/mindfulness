@@ -109,3 +109,15 @@ David Richo
   I am always open to rebuilding trust
   when it has been broken,
   if the other person is willing.
+
+* I remain open to reconcile
+  with others after conflict.
+  At the same time,
+  I am learning to release
+  – with love and without blame –
+  those who show themselves to be unwilling
+  to relate to me respectfully.
+  I accept the given
+  of sudden unexplained silence
+  or rejection by others
+  and will never use that style myself.
