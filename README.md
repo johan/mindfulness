@@ -132,3 +132,14 @@ David Richo
   I can show respect
   for the timing and choices of others
   by being able to take no for an answer.
+
+* I do not knowingly hurt
+  or intend to offend others.
+  I act kindly toward others
+  not to impress or oblige them
+  but because I really am kind
+  – or working on it.
+  If others fail to thank me
+  or to return my kindness,
+  that does not have to stop me
+  from behaving lovingly nonetheless.
