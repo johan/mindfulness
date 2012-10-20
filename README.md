@@ -161,3 +161,10 @@ David Richo
   I am thereby hoping
   for the transformation of others
   rather than retribution against them.
+
+* I do not gloat
+  over the sufferings or defeats
+  of those who have hurt me.
+  "It serves them right!"
+  has changed to: "May this serve
+  to help them evolve."
