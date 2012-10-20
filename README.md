@@ -121,3 +121,14 @@ David Richo
   of sudden unexplained silence
   or rejection by others
   and will never use that style myself.
+
+* I am learning to be assertive
+  by asking for what I need
+  without fear or inhibition.
+  I ask without demand,
+  expectation,
+  manipulation,
+  or a sense of entitlement.
+  I can show respect
+  for the timing and choices of others
+  by being able to take no for an answer.
