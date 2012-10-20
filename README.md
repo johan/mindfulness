@@ -206,3 +206,10 @@ David Richo
   and look for ways
   to bring more mutual respect
   into our communication.
+
+* I do not laugh at people
+  or at their mistakes and misfortunes
+  but look for ways to be supportive.
+
+
+
