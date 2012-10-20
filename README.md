@@ -57,3 +57,18 @@ David Richo
   but take it as information
   about what I have to work on.
   I appreciate positive feedback also.
+
+* I am letting go of the need
+  to keep up appearances or to project
+  a false or overly-impressive self-image.
+  Now I want to appear as I am,
+  without pretense
+  and no matter how unflattering.
+  I do not want to use any charms
+  of body, word or mind
+  to trick or deceive others.
+  Being loved for who I am
+  has become more important
+  – and more interesting –
+  than upholding the ever-shaky status
+  of my ego.
