@@ -143,3 +143,21 @@ David Richo
   or to return my kindness,
   that does not have to stop me
   from behaving lovingly nonetheless.
+
+* If people hurt me,
+  I can say "Ouch!"
+  and ask to open a dialogue.
+  I may ask for amends
+  but I can drop the topic
+  if they are not forthcoming.
+  No matter what,
+  I do not choose to get even,
+  hold grudges,
+  keep a record of wrongs,
+  or hate anyone.
+  "What goes around comes around"
+  has become "May what goes around come around
+  in a way that helps him or her learn and grow."
+  I am thereby hoping
+  for the transformation of others
+  rather than retribution against them.
