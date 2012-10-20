@@ -211,5 +211,15 @@ David Richo
   or at their mistakes and misfortunes
   but look for ways to be supportive.
 
+* I notice how in some groups there are people
+  who are humiliated or excluded.
+  Rather than be comforted
+  that I am still safely an insider,
+  especially by gossiping about them,
+  I want to sense the pain
+  in being an outsider.
+  Then I can reach out and include everyone
+  in my circle of love, compassion and respect.
+
 
 
