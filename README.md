@@ -100,3 +100,12 @@ David Richo
   that everyone has an innate goodness
   and that being open
   can contribute to bringing it out.
+
+* I am learning to trust others
+  when the record shows they can be trusted
+  while I, nonetheless,
+  commit myself to being trustworthy
+  regardless of what others may do.
+  I am always open to rebuilding trust
+  when it has been broken,
+  if the other person is willing.
