@@ -27,3 +27,10 @@ David Richo
   and resolve to act differently next time.
   Now I apologize more easily and willingly
   when necessary.
+
+* If someone is overly generous toward me
+  or has an exaggerated sense of obligation to me,
+  I do not want to exploit
+  his or her lack of boundaries.
+  Instead, I want to express appreciation
+  and work out an equitable way of interacting.
