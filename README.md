@@ -188,3 +188,21 @@ David Richo
   in healthy ways.
   I recognize this with concern
   not with censure or scorn.
+
+* I have a sense of humor
+  but not at the expense of others.
+  I want to use humor
+  to poke fun at human foibles,
+  especially my own.
+  I do not engage in ridicule,
+  put-downs,
+  taunting,
+  teasing,
+  barbs,
+  snide or bigoted remarks,
+  sarcasm or "comebacks."
+  When others use hurtful humor toward me
+  I want to feel the pain in both of us
+  and look for ways
+  to bring more mutual respect
+  into our communication.
