@@ -168,3 +168,13 @@ David Richo
   "It serves them right!"
   has changed to: "May this serve
   to help them evolve."
+
+* I am practicing ways to express
+  my anger against unfairness
+  directly and nonviolently
+  rather than in abusive,
+  bullying,
+  threatening,
+  blaming,
+  out-of-control,
+  or passive ways.
