@@ -318,3 +318,9 @@ David Richo
   The sincerity of my intention
   and my ongoing efforts
   feel like the equivalent of success.
+
+* I do not think
+  I am above other people
+  because I honor this list.
+  I do not demand
+  that others follow it.
