@@ -241,3 +241,11 @@ David Richo
   who use this CIA approach toward me,
   while still holding them in my spiritual circle
   of loving-kindness.
+
+* I am willing to participate
+  in the harmless conventions and social rituals
+  that make others happy,
+  for example, family dinners
+  or acknowledgement of birthdays.
+  When a situation becomes toxic,
+  I excuse myself without rancor.
