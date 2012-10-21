@@ -311,3 +311,10 @@ David Richo
   for these encouraging graces
   and say yes to the stirring call
   to live up to them.
+
+* I am not hard on myself when I fail
+  to live up to these ideals.
+  I just keep practicing earnestly.
+  The sincerity of my intention
+  and my ongoing efforts
+  feel like the equivalent of success.
