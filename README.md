@@ -274,3 +274,15 @@ David Richo
   I remain committed
   to a responsible adult style
   of relating and enjoying.
+
+* Confronted with the suffering in the world,
+  I do not turn my eyes away,
+  nor do I get stuck in blaming God or humanity
+  but simply ask:
+  "What then shall _I_ do?
+  What is the opportuniry in this
+  for my practice of loving-kindness?"
+  I keep finding ways to respond
+  even if they have to be minimal:
+  "It is better to light one candle
+  than to curse the darkness."
