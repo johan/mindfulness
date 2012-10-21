@@ -302,3 +302,12 @@ David Richo
   I tread with care on the Earth
   with what St. Bonaventure called,
   "a courtesy toward natural things."
+
+* I appreciate
+  that whatever love or wisdom I may have or show
+  comes not from me
+  but through me.
+  I give thanks
+  for these encouraging graces
+  and say yes to the stirring call
+  to live up to them.
