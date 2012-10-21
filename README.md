@@ -324,3 +324,11 @@ David Richo
   because I honor this list.
   I do not demand
   that others follow it.
+
+* I am sharing this list
+  with those who are open to it
+  and I keep believing that someday
+  these commitments can become
+  the style not only of individuals
+  but of groups in the world community:
+  corporate, political, religious.
