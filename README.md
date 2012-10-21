@@ -233,3 +233,11 @@ David Richo
   has become more important
   than whether they are
   what I want them to be.
+
+* I avoid Criticizing, Interfering, or giving Advice
+  that is not specifically asked for.
+  I take care of myself
+  by staying away from those
+  who use this CIA approach toward me,
+  while still holding them in my spiritual circle
+  of loving-kindness.
