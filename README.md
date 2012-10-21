@@ -264,3 +264,13 @@ David Richo
   My goal is not to use a relationship to gratify my ego
   but to dispossess myself of ego to gratify the relationship.
   Also, I respect the bounradies of others' relationships.
+
+* I want my sexual style to adhere to the same standards
+  of integrity and loving-kindness
+  that apply in all areas of my life.
+  More and more,
+  my sexuality expresses love,
+  passion, and joyful playfulness.
+  I remain committed
+  to a responsible adult style
+  of relating and enjoying.
