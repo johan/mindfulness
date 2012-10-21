@@ -249,3 +249,9 @@ David Richo
   or acknowledgement of birthdays.
   When a situation becomes toxic,
   I excuse myself without rancor.
+
+* I am less and less competitive
+  in relationships at home and work
+  and find happiness in cooperation and community.
+  I shun situations in which my winning
+  means that others lose in a humiliating way.
