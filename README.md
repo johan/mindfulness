@@ -255,3 +255,12 @@ David Richo
   and find happiness in cooperation and community.
   I shun situations in which my winning
   means that others lose in a humiliating way.
+
+* In intimate bonds,
+  I honor equality,
+  keep agreements,
+  work on problems,
+  and act in respectful and trustworthy ways.
+  My goal is not to use a relationship to gratify my ego
+  but to dispossess myself of ego to gratify the relationship.
+  Also, I respect the bounradies of others' relationships.
