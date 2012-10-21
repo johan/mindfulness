@@ -286,3 +286,19 @@ David Richo
   even if they have to be minimal:
   "It is better to light one candle
   than to curse the darkness."
+
+* I want my caring concern
+  to extend to the world around me.
+  I am committing myself
+  to fighting injustice
+  in nonviolent ways.
+  I support restorative
+  rather than retributive justice.
+  I am distressed
+  and feel myself called to action
+  by violations of human rights,
+  nuclear armaments,
+  economic and racial injustice.
+  I tread with care on the Earth
+  with what St. Bonaventure called,
+  "a courtesy toward natural things."
